@@ -1,2 +1,0 @@
-# All-projects
-Almabetter Projects
